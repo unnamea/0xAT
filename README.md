@@ -78,6 +78,5 @@
 
 接受异地 地球就这么大点 我可以把你接来~！
 
-![image](https://img1.doubanio.com/view/group_topic/l/public/p287891159.webp)
 
 
